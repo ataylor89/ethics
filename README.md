@@ -201,3 +201,79 @@ Insulin was created by the world's smartest people.
 There are so many important medicines.
 
 In my family we say, "Medicine is the most important thing in the world."
+
+## Genetics
+
+Genetics is so important to talk about that I think it should be the next subject we talk about.
+
+Let's talk about it now.
+
+Listen...
+
+Everyone has eternal life.
+
+Genetics is a mechanism for eternal life.
+
+DNA is a mechanism for eternal life.
+
+Part of our DNA has instructions for building a receptor.
+
+We call this part of our DNA the receptor gene.
+
+The receptor receives our spirit.
+
+Our spirit animates our body.
+
+We are spiritual and physical.
+
+We have a spirit and a body.
+
+I use the words spirit and soul interchangeably.
+
+The spirit is the soul and the soul is the spirit.
+
+Everyone has a receptor gene.
+
+Everyone has a receptor that receives their spirit.
+
+We are born again, over and over again.
+
+We are resurrected.
+
+We are reborn.
+
+There are many men on planet Earth who have my spirit.
+
+I am a fish in the ocean and I am a bird in the skies.
+
+There are men in China who have my spirit.
+
+Listen.
+
+Every human is a fish in the ocean and a bird in the skies.
+
+Every plant, every animal, every human has a spirit, a soul, a body, and a mind.
+
+There are ants who have my spirit.
+
+There are bees who have my spirit.
+
+There are sharks in the ocean who have my spirit.
+
+There are wolves in the wild who have my spirit.
+
+There are men in China who have my spirit.
+
+There are goldfish in the ocean who have my spirit.
+
+There are salmon in the ocean who have my spirit.
+
+There's an emergency in the ocean and we need to make the ocean peaceful.
+
+There's an emergency on land and we need to make the planet peaceful.
+
+We need to create peace everywhere.
+
+We need to create peace on planet Earth.
+
+We need to create peace in the cosmos.
