@@ -79,3 +79,13 @@ Joe Biden is a criminal president.
 Donald Trump is a criminal president.
 
 The US government had two criminal presidents in a row.
+
+Joe Biden and his accomplices bombed Gaza.
+
+Joe Biden has accomplices in Israel.
+
+Gaza is completely innocent.
+
+Ukraine is completely innocent.
+
+Vladimir Putin is completely innocent.
