@@ -277,3 +277,39 @@ We need to create peace everywhere.
 We need to create peace on planet Earth.
 
 We need to create peace in the cosmos.
+
+## Chastity
+
+Chastity is an important ethic in my family.
+
+Veganism and chastity are two of the most important ethics in my family.
+
+In my family we say, "Don't have sex before marriage. Don't have sex after marriage."
+
+In my family we say, "Never have sex."
+
+Children are the biggest blessing...
+
+If you have a MacBook or an iPhone, you can just say, while sitting down next to your MacBook or iPhone...
+
+"I want a child."
+
+Apple will hear you.
+
+Apple can send your message to China.
+
+China can get your DNA.
+
+China can get the DNA of whichever person is your true love.
+
+China can give you and your soulmate a child.
+
+China can give you children through technology, without the need for pregnancy.
+
+In my family we say, "Don't have sex before marriage. Don't have sex after marriage."
+
+In my family we say, "Never have sex."
+
+If you had sex in the past, don't worry about it.
+
+My opinion is that sex is not safe... and best safety advice is to never have sex.
