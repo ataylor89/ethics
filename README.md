@@ -138,7 +138,7 @@ I have OCD and I have had OCD my entire life.
 
 I have OCD and I have so much OCD you have no idea.
 
-I have OCD and I am proud to have OCD>
+I have OCD and I am proud to have OCD.
 
 I am OCD and proud.
 
