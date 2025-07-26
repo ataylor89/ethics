@@ -45,3 +45,9 @@ PETA sits at the table of Qualified World Government.
 The world has Qualified Female Leadership.
 
 Qualified Female Leadership rules the world.
+
+## The table
+
+Qualified World Government consists of China, Gaza, Ukraine, Russia, Iran, North Korea, Saudi Arabia, and PETA.
+
+Xi Jinping, Vladimir Putin, Ali Khamenei, Kim Jong Un, Mohammed bin Salman, Gaza, and PETA, all sit at the table of Qualified World Government.
