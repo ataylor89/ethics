@@ -51,3 +51,7 @@ Qualified Female Leadership rules the world.
 Qualified World Government consists of China, Gaza, Ukraine, Russia, Iran, North Korea, Saudi Arabia, and PETA.
 
 Xi Jinping, Vladimir Putin, Ali Khamenei, Kim Jong Un, Mohammed bin Salman, Gaza, and PETA, all sit at the table of Qualified World Government.
+
+There are other people who sit at the table of Qualified World Government.
+
+Maybe I will share their names later.
