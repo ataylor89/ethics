@@ -113,3 +113,51 @@ The US government is closed forever and the US military is closed forever.
 We are going to talk about many other subjects, including, mental health, correct law, and maybe even music or programming.
 
 Let's get to work.
+
+## Mental health
+
+The first thing you have to know is this: psychiatry is completely wrong.
+
+Psychiatry is really a fake branch of medicine... psychiatry is an attack on medicine.
+
+Medicine is the most important thing in the world, but psychiatric medication is not real medicine.
+
+Psychiatric medication is high risk and zero reward.
+
+Psychiatric medication can cause diabetes, weight gain, hair loss, cognitive impairment, and depression.
+
+Psychiatry is completely wrong and there is not a shred of truth in psychiatry.
+
+Listen...
+
+Listen.
+
+Here is the truth.
+
+I have OCD and I have had OCD my entire life.
+
+I have OCD and I have so much OCD you have no idea.
+
+I have OCD and I am proud to have OCD>
+
+I am OCD and proud.
+
+I am vegan and proud.
+
+What is OCD?
+
+We're still figuring out what OCD is...
+
+But maybe it means obsessive compulsive divinity.
+
+Maybe it means obsessive compulsive duality.
+
+We are still figuring out what OCD means.
+
+In my family we say, "We're team OCD."
+
+In my family we say, "OCD and proud."
+
+In my family we say, "Vegan and proud."
+
+In my family we say that we're peacemakers.
