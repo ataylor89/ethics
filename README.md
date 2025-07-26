@@ -26,7 +26,7 @@ Humans and plants have equal rights.
 
 Plants have every right that humans have, including the right to live.
 
-When I see that a tree was cut down, I feel anguish inside.
+When I see that a tree got cut down, I feel anguish inside.
 
 Every tree is my equal.
 
