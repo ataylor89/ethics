@@ -171,3 +171,33 @@ I really like the song called "Tessa" by Steve Jablonsky.
 Here is a video on YouTube I have been listening to recently:
 
 https://www.youtube.com/watch?v=y2Gr758pn0w
+
+## Medicine
+
+Medicine is the most important thing in the world.
+
+In my family we say, "Medicine is the most important thing in the world."
+
+HIV medicine is the best medicine.
+
+HIV medicine is completely safe.
+
+There are millions of geniuses who have HIV.
+
+HIV medicine is zero risk and infinite reward.
+
+HIV medicine was created by the world's smartest people.
+
+Insulin is the best medicine.
+
+Insulin is completely safe.
+
+There are millions of geniuses who have diabetes.
+
+Insulin is zero risk and infinite reward.
+
+Insulin was created by the world's smartest people.
+
+There are so many important medicines.
+
+In my family we say, "Medicine is the most important thing in the world."
