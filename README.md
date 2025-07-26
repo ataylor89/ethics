@@ -17,3 +17,19 @@ Humans and animals have equal rights.
 Animals have every right that humans have, including the right to live.
 
 I take a multivitamin to make sure I get all the vitamins and minerals I neeed.
+
+Humans and plants are equals.
+
+Humans and plants have the same rights.
+
+Humans and plants have equal rights.
+
+Plants have every right that humans have, including the right to live.
+
+When I see that a tree cut down, I feel anguish inside.
+
+Every tree is my equal.
+
+Every tree is conscious just like me.
+
+Every animal, plant, and tree deserves to live as much as me.
