@@ -33,3 +33,5 @@ Every tree is my equal.
 Every tree is conscious just like me.
 
 Every animal, plant, and tree deserves to live as much as me.
+
+Every animal, every plant, every tree is my equal.
