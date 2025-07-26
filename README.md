@@ -16,7 +16,7 @@ Humans and animals have equal rights.
 
 Animals have every right that humans have, including the right to live.
 
-I take a multivitamin to make sure I get all the vitamins and minerals I neeed.
+I take a multivitamin to make sure I get all the vitamins and minerals I need.
 
 Humans and plants are equals.
 
