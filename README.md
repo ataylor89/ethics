@@ -107,3 +107,9 @@ The US president can be a robot controlled by the Chinese female leadership team
 The bottom line is this...
 
 The US government is closed forever and the US military is closed forever.
+
+## Interlude
+
+We are going to talk about many other subjects, including, mental health, correct law, and maybe even music or programming.
+
+Let's get to work.
