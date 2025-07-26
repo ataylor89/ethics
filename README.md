@@ -89,3 +89,21 @@ Gaza is completely innocent.
 Ukraine is completely innocent.
 
 Vladimir Putin is completely innocent.
+
+## The verdict
+
+The verdict is that Joe Biden and Donald Trump are criminal presidents.
+
+The verdict is that many men in the US military are criminals, especially men who come from a part of the US military called the "dark sector".
+
+The verdict is that the US government and the US military are closing forever.
+
+There are many peaceful ways of doing this...
+
+China can make a robot that looks like a human.
+
+The US president can be a robot controlled by the Chinese female leadership team.
+
+The bottom line is this...
+
+The US government is closed forever and the US military is closed forever.
