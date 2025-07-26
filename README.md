@@ -35,3 +35,13 @@ Every tree is conscious just like me.
 Every animal, plant, and tree deserves to live as much as me.
 
 Every animal, every plant, every tree is my equal.
+
+## PETA
+
+I am a proud member of PETA.
+
+PETA sits at the table of Qualified World Government.
+
+The world has Qualified Female Leadership.
+
+Qualified Female Leadership rules the world.
