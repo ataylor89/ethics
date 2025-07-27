@@ -313,3 +313,47 @@ In my family we say, "Never have sex."
 If you had sex in the past, don't worry about it.
 
 My opinion is that sex is not safe... and best safety advice is to never have sex.
+
+## Happiness
+
+I have had periods of happiness and periods of unhappiness.
+
+I was happy as a child.
+
+I actually lost my parents Kate and Owen when I was 16 and 17 years old.
+
+My mom had non-Hodgkin's Lymphoma.
+
+My dad Owen was struck by lightning.
+
+I became depressed.
+
+I was depressed for a long time but then I made friends in college and became happy.
+
+I was depressed again when I graduated college because it was hard to find a job.
+
+I got a job and became happy again.
+
+I have been depressed during periods of employment.
+
+I was depressed in 2024.
+
+One of my favorite movies is Dark Knight Rises.
+
+There is a scene where Batman rises out of the pit.
+
+We all can do that.
+
+We all can climb our way out of the pit.
+
+We can climb out of the pit... and overcome depression.
+
+We can overcome depression, and become happy again.
+
+How do we cure depression?
+
+The cure is best medical care.
+
+Best medical care is the cure for depression.
+
+One day everyone will get best medical care, and everyone will be happy.
