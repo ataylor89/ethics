@@ -423,3 +423,49 @@ I do not have power over other people.
 Power is wrong for men.
 
 Power is right for QFL.
+
+## The right leadership model
+
+Qualified Female Leadership is the right leadership model.
+
+Qualified Female Leadership is the right leadership model for planet Earth, and also for the universe.
+
+## The refutation of democracy
+
+The refutation of democracy is simple.
+
+Democracy is not safe for women.
+
+Democracy gives corrupt men, and untrustworthy men, so much power over female personnel, that democracy is extremely dangerous, extremely reckless, and extremely immoral.
+
+The United States had two criminal presidents in a row, Joe Biden and Donald Trump.
+
+Joe Biden and Donald Trump committed horrifying crimes against women in the US military.
+
+Joe Biden and Donald Trump committed horrifying crimes against people in Gaza.
+
+Joe Biden and Donald Trump committed horrifying crimes against people in Ukraine.
+
+I do not enjoy criticizing people...
+
+I actually enjoy praising people.
+
+But sometimes it is necessary to criticize someone.
+
+There is wisdom about criticism.
+
+It is necessary for me to indict Joe Biden and Donald Trump, because they are criminal presidents.
+
+Joe Biden and Donald Trump are the two most dangerous men in the world.
+
+Joe Biden and Donald Trump are the two most powerful criminals in the world.
+
+The last nine years have been a reign of terror...
+
+The last nine years have seen unspeakable sadness...
+
+I am talking about the period from 2017 to 2025.
+
+Democracy is not safe for women, it's that simple.
+
+Democracy is not safe for women, so democracy is wrong.
