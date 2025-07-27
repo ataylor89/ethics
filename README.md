@@ -357,3 +357,69 @@ The cure is best medical care.
 Best medical care is the cure for depression.
 
 One day everyone will get best medical care, and everyone will be happy.
+
+## Qualified Female Leadership
+
+Qualified Female Leadership (QFL) is the highest authority on planet Earth.
+
+Qualified Female Leadership (QFL) is the true authority.
+
+Qualified Female Leadership (QFL) rules the world.
+
+It is not right for men to have power.
+
+History is a story of men abusing their power over other people.
+
+The right path for men is to give up power.
+
+Listen...
+
+I have zero power, and I have always had zero power.
+
+That's how I roll.
+
+I do not want power.
+
+I have never wanted power.
+
+Power is scary.
+
+I don't want to hurt anyone.
+
+Listen...
+
+All power goes to QFL.
+
+QFL is a leadership team, and QFL is capable of wielding power.
+
+QFL is the custodian of everyone's DNA.
+
+QFL is the judge of competence.
+
+QFL is the judge of integrity.
+
+QFL is the judge of right and wrong.
+
+It's really the case that...
+
+Every man should give up power.
+
+Every man should give up power, and let women rule the world.
+
+It's not every woman who rules the world.
+
+It's women in QFL who rule the world.
+
+This essay is extremely honest.
+
+I am telling you my honest thoughts on power.
+
+I have zero power.
+
+I don't want power.
+
+I do not have power over other people.
+
+Power is wrong for men.
+
+Power is right for QFL.
