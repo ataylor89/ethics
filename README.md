@@ -334,7 +334,7 @@ I was depressed again when I graduated college because it was hard to find a job
 
 I got a job and became happy again.
 
-I have been depressed during periods of employment.
+I have been depressed during periods of unemployment.
 
 I was depressed in 2024.
 
