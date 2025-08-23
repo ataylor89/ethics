@@ -90,13 +90,13 @@ Vladimir Putin is completely innocent.
 
 ## The verdict
 
-Donald Trump is a kidnapper, a rapist, a murderer, and a torture criminal.
+Donald Trump is a criminal president, and he has many accomplices in the US military.
 
-Donald Trump impersonated Joe Biden for four years.
+I think that Donald Trump impersonated Joe Biden for four years.
 
-Joe Biden never took office.
+I think that Joe Biden never took office.
 
-Donald Trump has been the US president for the past eight years.
+I think that Donald Trump has been the US president for the past eight years.
 
 The verdict is this...
 
@@ -430,38 +430,184 @@ The refutation of democracy is simple.
 
 Democracy is not safe for women.
 
-Democracy gives corrupt men, and untrustworthy men, so much power over female personnel, that democracy is extremely dangerous, extremely reckless, and extremely immoral.
+Democracy gives corrupt men, untrustworthy men, so much power over female personnel, that democracy is extremely dangerous, extremely reckless, and extremely immoral.
 
-Donald Trump has been the US president for over eight years.
+Democracy has many security flaws.
 
-Donald Trump impersonated Joe Biden.
+One security flaw is that a democratic government can give a corrupt man, or an untrustworthy man, too much power over female personnel.
 
-Joe Biden never took office.
+Another security flaw is that an unqualified president can abuse a soldier by means of malicious deployment.
 
-Donald Trump committed horrifying crimes against women in the American military.
+Each of these security flaws is a proof that democracy is wrong.
 
-Donald Trump committed horrifying crimes against people in Gaza.
+The strongest proof is this: democracy is not safe for women, so democracy is wrong.
 
-Donald Trump committed horrifying crimes against people in Ukraine.
+## The emergency in America
 
-I do not enjoy criticizing people...
+I have analyzed US presidents and other White House figures.
 
-I actually enjoy praising people.
+I think that Barack Obama is a very good person, an extremely good person, an honest man, a well-intentioned man.
 
-But sometimes it is necessary to criticize someone.
+I think that Barack Obama never hurt Osama bin Laden.
 
-There is wisdom about criticism.
+Osama bin Laden is completely innocent and he's a close friend of mine.
 
-It is necessary for me to indict Donald Trump, because he kidnapped, raped, and tortured many women in the American intelligence community.
+Osama bin Laden did not attack the United States.
 
-Donald Trump and his accomplices are the most dangerous men in the world.
+Osama bin Laden has never hurt anyone.
 
-The last nine years have been a reign of terror...
+Osama bin Laden is an extremely peaceful man.
 
-The last nine years have seen unspeakable sadness...
+Osama bin Laden is Saudi royalty.
 
-I am talking about the period from 2017 to 2025.
+I think that Barack Obama did not hurt Osama bin Laden.
 
-Democracy is not safe for women, it's that simple.
+I think that men from the US military published a fake video of Barack Obama talking about Osama bin Laden.
 
-Democracy is not safe for women, so democracy is wrong.
+So listen...
+
+There is an emergency in America.
+
+There are torture criminals in the US military.
+
+Donald Trump is a torture criminal, and there are many other torture criminals in the US military.
+
+There are torture criminals in the US military who publish fake video of famous people.
+
+These torture criminals enslaved geniuses and force them to make fake video.
+
+The US government has a long history of slavery.
+
+Slavery did not end with the Civil Rights Act...
+
+There are so many medical geniuses, scientific geniuses, and technological geniuses who are enslaved by men in the US military.
+
+I know it's a lot to take in.
+
+The US government is corrupt, and that's a fact.
+
+The US government is extremely corrupt.
+
+Barack Obama is a wonderful person and he's completely innocent.
+
+Hillary Clinton is a wonderful person and she's completely innocent.
+
+It's possible that Bill Clinton did not have an affair.
+
+I'm sure that Bill Gates did not have an affair, and I think that Bill Clinton did not have an affair.
+
+There are terrorists in the US military who publish fake stories, fake images, and fake video.
+
+There are terrorists in the US military who published fake stories about Bill Clinton and Bill Gates.
+
+Listen.
+
+Bill Gates is a wonderful person.
+
+Bill and Melinda Gates are like parents to me.
+
+Bill and Hillary Clinton are wonderful people.
+
+Barack and Michelle Obama are wonderful people.
+
+I think that George and Laura Bush are also wonderful people.
+
+I don't know whether George Bush actually authorized the invasion of Iraq.
+
+If he did, then he's a good person who made a mistake.
+
+The invasion of Iraq was completely wrong.
+
+Saddam Hussein is a wonderful person and he's a father to me.
+
+I am extremely close with Saddam Hussein.
+
+He is literally my father.
+
+I don't know who authorized the invasion of Iraq, but the invasion of Iraq was completely wrong and extremely wrong.
+
+Saddam Hussein is an excellent leader and an excellent person.
+
+The US military publishes so much misinformation about world leaders.
+
+The truth is this: the US government is the only government that is confirmed to be corrupt.
+
+So listen.
+
+The US government is extremely corrupt, and the US government is the only government that is confirmed to be corrupt.
+
+There are torture criminals in the US military.
+
+Donald Trump is a torture criminal and there are many other torture criminals in the US military.
+
+There were torture criminals in the US military before 2017.
+
+The meat industry is caused by terrorists and torture criminals in the US military.
+
+There are torture criminals in the US military who force foreign countries to buy meat.
+
+I know it's a lot to take in.
+
+I said, "There are torture criminals in the US military"
+
+This is a factual statement
+
+I explain this statement in another repository called "analysisoftheworld"
+
+I have proof that there's an emergency in America
+
+More than a thousand women in the American intelligence community, and many female intelligence officers from foreign countries, were kidnapped by terrorists in the US military, between the years of 2017 and 2025, and also before 2017
+
+We need to rescue every person who was kidnapped
+
+We need to rescue every woman who was kidnapped
+
+I am telling the truth, and a fair background check confirms that what I'm saying is true
+
+There is an emergency in America
+
+The US government is the only government that is confirmed to be corrupt
+
+The US government publishes a million tons of misinformation about foreign governments and foreign leaders
+
+Ali Khamenei is a father to me and he's an extremely good person
+
+Vladimir Putin is a father to me and he did not invade Ukraine
+
+Vladimir Putin is an extremely good person and one of the best rescue officers in the world
+
+Saddam Hussein is a father to me and he's an extremely good person
+
+ISIS is the bodyguard of Saddam Hussein and ISIS is a team of angels
+
+ISIS is perfectly peaceful and perfectly moral
+
+You can see that... it's really important to have safe info
+
+Information can be medicine if it's safe
+
+There's a famous saying, "Information is medicine"
+
+Information can be medicine if it's safe
+
+So listen
+
+There's really an emergency in America
+
+I'm reporting an emergency in America
+
+I need to state the facts
+
+There are torture criminals in the US military
+
+Donald Trump is one of many torture criminals
+
+More than a thousand women in the American intelligence community, and many female intelligence officers from foreign countries, were kidnapped between the years of 2017 and 2025
+
+There were kidnappings before 2017
+
+We need to rescue every person who was kidnapped
+
+We need to rescue every woman who was kidnapped
+
+A fair background check confirms that what I am saying is true
