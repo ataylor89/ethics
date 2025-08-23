@@ -474,7 +474,7 @@ Donald Trump is a torture criminal, and there are many other torture criminals i
 
 There are torture criminals in the US military who publish fake video of famous people.
 
-These torture criminals enslaved geniuses and force them to make fake video.
+These torture criminals enslaved geniuses and forced them to make fake video.
 
 The US government has a long history of slavery.
 
