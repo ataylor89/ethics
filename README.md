@@ -90,14 +90,6 @@ Vladimir Putin is completely innocent.
 
 ## The verdict
 
-Donald Trump is a criminal president, and he has many accomplices in the US military.
-
-I think that Donald Trump impersonated Joe Biden for four years.
-
-I think that Joe Biden never took office.
-
-I think that Donald Trump has been the US president for the past eight years.
-
 The verdict is this...
 
 We are closing the US government forever, and we are closing the US military forever.
